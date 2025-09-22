@@ -1,5 +1,5 @@
 # 💫 About Me:
-AIML enthusiast & Full-stack developer passionate about building intelligent and scalable web applications. I love combining AI/ML with modern web technologies to create impactful solutions.
+I'm an AIML enthusiast and full-stack developer with a passion for building intelligent, scalable web applications. I thrive on merging AI/ML with modern web technologies to create impactful solutions. Grinding every day to live a comfortable, fulfilling life with my girl.
 
 
 ## 🌐 Socials:
